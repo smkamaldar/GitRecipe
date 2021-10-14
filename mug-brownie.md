@@ -2,6 +2,10 @@ I love this recipe, because it's so simple to make.
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
+One day when I got up in the morning I ve noticed that I slept in.
+I didnt have much time having a normal breakfast.
+so I hurriedly maked mug-brownie.
+
 What you need
 =============
 
